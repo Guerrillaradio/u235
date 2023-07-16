@@ -7,7 +7,7 @@
 <p>Para iniciar esta reacción en cadena, basta con un neutrón libre que toque el núcleo del u235
 <p>Cuando un núcleo de u235 absorbe un neutrón libre se divide en dos núcleos hijos más ligeros, fenómeno conocido como fisión nuclear. En el proceso se liberan dos o tres neutrones que, al impactar contra otros núcleos de u235 prosiguen la reacción (reacción en cadena) 
   
-<p>Nos parecemos al u235
+<p>Hay algo u235 dentro de cada ser humano
 <p>
 <p>
 
