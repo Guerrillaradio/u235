@@ -9,10 +9,10 @@
   
 <p>Cada ser humano al ser tocado por su "electrón libre", también es capaz de formar una reacción en cadena
 
-  
+![la creacion de adan](Michelangelo_-_Creation_of_Adam_(cropped))  
 <p>
 <p>
-<div><font color="#ff1700">REFERENTES</font></div><div></div><div><font color="#ff1700"> </font><font color="#ff2d00"> </font></div>
-<a href="https://omegalfa.es/downloadfile.php?file=libros/para-una-guerrilla-semiologica.pdf"><div><font color="#ff1700">Umberto Eco - Para una Guerrilla Semiológica</font></div><div></div><div><font color="#ff1700"> </font><font color="#ff2d00"> </font></div></a>
+<div><font color="#ff1700">铀u235</font></div><div></div><div><font color="#ff1700"> </font><font color="#ff2d00"> </font></div>
+<div><font color="#ff1700"></font></div><div></div><div><font color="#ff1700"> </font><font color="#ff2d00"> </font></div></a>
 <div><font color="#ff1700"></font></div><div></div><div><font color="#ff1700"> </font><font color="#ff2d00"> </font></div>
-<a href="https://epdf.tips/cultura-y-simulacro-spanish-edition.html"><div><font color="#ff1700">Jean Baudrillard - Simulacra & Simulation</font></div><div></div><div><font color="#ff1700"> </font><font color="#ff2d00"> </font></div></a>
+<><div><font color="#ff1700"></font></div><div></div><div><font color="#ff1700"> </font><font color="#ff2d00"> </font></div></a>
