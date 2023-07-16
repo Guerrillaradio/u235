@@ -1,5 +1,5 @@
               
-<font color="#ff1700">铀u235 
+<font color="#ff1700">铀235 
           
                                     
 <p>
@@ -11,6 +11,6 @@
 <p>Electrón libre
 <p>
 <p>
-![La creacion de Adan](Creacion de Adan.jpg)
+![Creacion de Adan](Creacion de Adan.jpg)
 
  
