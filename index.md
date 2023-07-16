@@ -1,10 +1,15 @@
               
-![gr](gr(1).png) 
+![logo u235](Logo u235.jpeg) 
           
                                     
 <p>
-<p>RADIO ONLINE <a href="http://giss.tv:8001/guerrillaradio.ogg">opcion 1</a>  <a href="https://guerrillaradio.github.io/prendelaradio/">opcion 2</a>
-<p>107.7 FM Compañia de Jesus 1131 y alrededores 
+<p>El Uranio-235, es (casi) el único elemento natural fisible, presente en la naturaleza con capacidad de provocar una reacción en cadena de fisión nuclear.
+<p>Para iniciar esta reacción en cadena, basta con un neutrón libre que toque el núcleo del U-235
+<p>Cuando un núcleo de uranio-235 absorbe un neutrón libre se divide en dos núcleos hijos más ligeros, fenómeno conocido como fisión nuclear. En el proceso se liberan dos o tres neutrones que, al impactar contra otros núcleos de U-235 prosiguen la reacción (reacción en cadena) 
+  
+<p>Cada ser humano al ser tocado por su "electrón libre", también es capaz de formar una reacción en cadena
+
+  
 <p>
 <p>
 <div><font color="#ff1700">REFERENTES</font></div><div></div><div><font color="#ff1700"> </font><font color="#ff2d00"> </font></div>
